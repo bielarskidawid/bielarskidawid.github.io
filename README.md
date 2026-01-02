@@ -1,1 +1,0 @@
-# bielarskidawid.github.io
